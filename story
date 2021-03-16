@@ -1,1 +1,3 @@
 Tagore modernised Bengali art by spurning rigid classical forms and resisting linguistic strictures. His novels, stories, songs, dance-dramas, and essays spoke to topics political and personal. Gitanjali (Song Offerings), Gora (Fair-Faced) and Ghare-Baire (The Home and the World) are his best-known works
+The original surname of the Tagores was Kushari
+The golden temple of Amritsar comes back to me like a dream
